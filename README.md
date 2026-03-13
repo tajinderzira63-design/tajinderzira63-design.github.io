@@ -1,2 +1,2 @@
-# tajinderzira63-design.-gothub.-Io
+# tajinderzira63-design
 Headmaster 
